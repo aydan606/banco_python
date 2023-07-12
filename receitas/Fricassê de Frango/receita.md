@@ -19,5 +19,7 @@
 4. Leve ao forno até borbulhar.
 5.  Sirva com arroz branco.
 
+### Bom apetite! :yum:
+
 [_**Clique aqui para acessar a receita**_](https://www.tudogostoso.com.br/receita/10254-fricasse-de-frango.html)
 
